@@ -5,4 +5,4 @@ I'm a calm person (trust)
 u can Int. but if i was like adding in my name (dniuparty,dni,dniuid, dniucf)so please be polite and dni , or if i was w someone please don't interrupt or even like try to troll i get mad easily and block u.
 
  Thank u.
- 
+ ^_^
