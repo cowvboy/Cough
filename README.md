@@ -1,5 +1,7 @@
 I'm a calm person (trust) 
 
+<img width="736" height="867" alt="9b28a5ecbab58c46cc36d90a9936d220 webp" src="https://github.com/user-attachments/assets/45ebeb82-9d2e-4af5-aef0-49ea70cbbbbb" />
+
 -if u needed to talk jst don't be weird ok?ok.
 -PLUS be careful alil w ur jokes if ur not a close friend 
  cuz i get angry alil fast so pardon me. 
