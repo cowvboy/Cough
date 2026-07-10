@@ -1,4 +1,4 @@
-tell, I'm a calm person (trust) 
+I'm a calm person (trust) 
 
 -if u needed to talk jst don't be weird ok?ok.
 -PLUS be careful alil w ur jokes if ur not a close friend 
